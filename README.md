@@ -77,5 +77,5 @@ Mình rất quan tâm đến các vị trí phân tích dữ liệu trong ngành
 
 ### 📫 Liên hệ
 
-- 📧 Email: huele.le1212@gmâil.com
+- 📧 Email: huele.le1212@gmail.com
 - 🗂️ Linkedin: https://www.linkedin.com/in/huele-221093/
